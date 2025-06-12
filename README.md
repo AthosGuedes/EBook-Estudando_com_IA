@@ -45,7 +45,8 @@ Se você quer aprender melhor e aproveitar ao máximo as ferramentas que já est
 
 ## ‼️ IMPORTANTE!!!
 
-EBook criado com ajuda da Inteligência Artificial, desde imagem de capa até os títulos e tópicos mas sempre acompanhado por mim. Apenas uma amostra do que é possível fazer com a ajuda da IA😉‼.
+EBook criado com ajuda da Inteligência Artificial, desde imagem de capa até os títulos e tópicos mas sempre acompanhado por mim. Apenas uma amostra do que é possível fazer com a ajuda da IA😉‼
+
 Use a Inteligência Articial para ajudar no dia a dia mas não deixa que ela faça tudo por você. A IA é ferramenta, e uma ferramenta poderosa se for bem utilizada.
 
 ---
